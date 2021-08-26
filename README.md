@@ -1,1 +1,2 @@
-# SamsungR-D
+# Samsung PRISM IIIT Naya Raipur
+
